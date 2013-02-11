@@ -31,3 +31,11 @@ So glade to be a part of your github learning.
 Thanks for all your work.
 
 Douglas
+
+---------
+
+Greetings from Brazil :-)
+
+Luiza
+
+---------
